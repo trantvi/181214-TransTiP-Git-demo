@@ -1,4 +1,4 @@
-Starker Seig in der Exzellenzstattegie: Die Leibniz Universität hat den Zuschlag für ihre zwei eigen geführten Forschungscluster PhoenixD und QuantumFrontiers sowie das mitbeantragte Projekt Hearing4all erhalten. Die Cluster erhalten eine Millionenförderung ab Januar 2019.
+Starker Steig in der Exzellenzstrategie: Die Leibniz Universität hat den Zuschlag für ihre zwei eigen geführten Forschungscluster PhoenixD und QuantumFrontiers sowie das mitbeantragte Projekt Hearing4all erhalten. Die Cluster erhalten eine Millionenförderung ab Januar 2019.
 
 Welcome to the homepage of the International Research Training Group 2309
 
